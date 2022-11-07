@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @nekoisgod
-- 🌱 Aぇ 
+- 🧷 Hi, I’m @nekoisgod
+- 🌠 Aぇ 
